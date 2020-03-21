@@ -46,7 +46,7 @@ He went to sleep, but not before finishing up his popcorn.
 
 And the last one, inspired by https://www.reddit.com/r/lifeofnorman/comments/3ykvsw/norman_considers_suicide/:
 
-***
+
 Norman considers suicide.
 Norman recently found himself in situations where he couldn't think of anything to say to the woman at the checkout.
 Norman couldn't get himself to say anything.
